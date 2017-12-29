@@ -1,2 +1,3 @@
 # hello-world
 Hello world
+Hello all! Adam V. here, the coolest little asian dude you'll ever have the pleasure of meeting! Just a few more words to type in to fill more of the available white space on this here editor and I'll be good to go! *cracks knuckles* Wait, how in the world did I just crack my knuckles and type at the same time?! Now this really makes me question whether I'm a miracle multi-tasking superhero or not....
